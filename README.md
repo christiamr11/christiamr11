@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate if your chill
 - 📫 How to reach me on discord
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: kinda a nerd at coding
+- ⚡ Fun fact: you can reach me on discord 
 
 <!---
 christiamr11/christiamr11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
